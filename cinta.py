@@ -1,1 +1,0 @@
-Mafiq sayang Najia!
